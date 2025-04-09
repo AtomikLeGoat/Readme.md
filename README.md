@@ -1,5 +1,3 @@
-https://www.youtube.com/watch?v=SDkAGkd4NLc
-
 Hello there, I'm Atomik 👋
 
 I am a Developer
